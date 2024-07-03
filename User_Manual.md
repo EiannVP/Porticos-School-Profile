@@ -11,4 +11,8 @@ Part 3.2: [Contains the Part3.2], https://malayancollegesmindanaoo365-my.sharepo
 
 Part UI: [Contains the UI], https://malayancollegesmindanaoo365-my.sharepoint.com/:w:/g/personal/vdflores_mcm_edu_ph/Ec8hhj3cSdBPgn83ppMaOkoB3KFDRhNlbA_6hK-f2N_v3A?e=iUcQsM.
 
+More UI:[Contains the UI] https://malayancollegesmindanaoo365-my.sharepoint.com/:f:/g/personal/ecporticos_mcm_edu_ph/Ep51_Vl0RRtPp93q3Wj1K8YBeJV5UcTT0EQ6uo-jo9CTRA?e=B3C3Rb
+
+Logo Designs: https://malayancollegesmindanaoo365-my.sharepoint.com/:f:/g/personal/ecporticos_mcm_edu_ph/Ep51_Vl0RRtPp93q3Wj1K8YBeJV5UcTT0EQ6uo-jo9CTRA?e=B3C3Rb
+
 FINAL PART:(https://malayancollegesmindanaoo365-my.sharepoint.com/personal/vdflores_mcm_edu_ph/_layouts/15/onedrive.aspx?id=%2Fpersonal%2Fvdflores_mcm_edu_ph%2FDocuments%2FFINAL%20REPORTING%20HCI&ga=1)
