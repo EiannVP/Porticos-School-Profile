@@ -4,7 +4,6 @@ Prototype
 https://www.figma.com/proto/3Te7Y5K7oPmWgjUi2sItUh/UI-P1?node-id=1-265&t=K2d4Ucn8askRcmSc-1
 
 More Info
-Certificate: Contains the certificate Flores Vinz Daniel received from the required Coursera course.
 
 Part 3.1: [Contains the Part3.1] (https://malayancollegesmindanaoo365-my.sharepoint.com/:w:/g/personal/vdflores_mcm_edu_ph/EdmJRgzSPW1Jg5L9gfn0PwIBX8FeBlVFAliPwxgJ2wPO4g?e=pJFrcc)
 
